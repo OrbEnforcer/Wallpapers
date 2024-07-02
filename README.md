@@ -2,7 +2,7 @@ I AM NOT PAYING EXTRA FOR STORAGE.
 
 **NOTE**: I don't own any of these wallpapers. Credit goes to the creators.
 
-### Preview
+### Preview (W.I.P)
 
 | Column 1 | Column 2 | Column 3 |
 |---------|---------|---------|
